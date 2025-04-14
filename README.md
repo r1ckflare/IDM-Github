@@ -11,10 +11,9 @@
 
 ## Getting Started with **IDM 2025 crack**
 
-> ✅ Lifetime Activation  
-> ✅ Offline Mode Supported  
-> ✅ Full Toolset & Libraries  
-> ✅ Includes Architecture, MEP, and Electrical Toolsets
+> ✅ Lifetime activation  
+> ✅ Works with all browsers  
+> ✅ No fake serial prompts 
 
 ---
 
