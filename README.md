@@ -1,4 +1,4 @@
-# ⚡ **crack IDM 6.42** | **Internet Download Manager 2025** 🚀🌐
+# ⚡**crack IDM 6.42** | **Internet Download Manager 2025**🚀🌐
 
 <div align='center'>
 <img src="https://i.ytimg.com/vi/ZBK4AW6IJUM/maxresdefault.jpg"/>
